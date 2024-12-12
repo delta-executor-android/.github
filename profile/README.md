@@ -117,4 +117,9 @@ Delta Executor is a must-have tool for Roblox players seeking enhanced gameplay 
 
 **Download the latest version today from the official website, and elevate your Roblox experience!**
 
+https://github.com/jerk-teams/youtube-premium-apk
+
+https://github.com/jerk-teams/spotify-premium
+
+https://github.com/jerk-teams
 
